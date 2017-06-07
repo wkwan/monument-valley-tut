@@ -1,1 +1,1 @@
-Tutorial: https://www.youtube.com/watch?v=aF3Idj_PeYY&feature=youtu.be
+Tutorial: https://youtu.be/aF3Idj_PeYY
